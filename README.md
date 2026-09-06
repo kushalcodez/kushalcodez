@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=JetBrains+Mono&size=60&pause=1000&center=true&vCenter=true&multiline=true&width=1600&height=300&lines=Kushal+Bhattad;Developer+from+India)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=JetBrains+Mono&size=60&pause=1000&center=true&vCenter=true&multiline=true&width=1600&height=300&lines=Kushal+Bhattad;Professional+LARPer)](https://git.io/typing-svg)
 
 ***
 
